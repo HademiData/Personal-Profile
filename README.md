@@ -1,6 +1,6 @@
 # Afolabi Adewale Adeniyi
 
-[LinkedIn](https://www.linkedin.com/in/adewale-afolabi-227b74242) | [GitHub](https://github.com/AdewaleData) | [Website – under construction](https://v0-personal-portfolio-page-two.vercel.app/) 
+[LinkedIn](https://www.linkedin.com/in/adewale-afolabi-227b74242) | [GitHub](https://github.com/AdewaleData) | [Website – under construction](https://v0-mechanical-engineering-cv.vercel.app/) 
 📞 07015537628 | 09068596589  
 ✉️ afolabiwale262@gmail.com  
 
