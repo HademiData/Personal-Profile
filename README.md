@@ -133,7 +133,7 @@ Jan 2023 - Jul 2023 | London, UK
 
 ---
 
-## Memberships
+## Memberships and Conferences
 
 - **Society of Petroleum Engineers LASU Student Chapter** (2022-2024)
 - **Nigerian Institute of Mechanical Engineers LASU Student Chapter** (2022-2024)
@@ -146,6 +146,6 @@ Jan 2023 - Jul 2023 | London, UK
 ## References
 
 - **Prof. Surajudeen Abiodun Fatai**  
-  Lagos State University, Dean of Student Affairs 2023  
+  Lagos State University, Acting Dean of Student Affairs 2023  
   📞 08023273297
 
